@@ -36,7 +36,7 @@ Chapitre 1.3 l’apport de la conduite de projets
 
 1.3.2 Fiabiliser l’emploie des ressources et le planning 
 
-1.3.3 Développer son équipe
+1.3.3 Développer son équipe : choisir son equipe et la formation souhaiter 
 
 Chapitre 2 : Les aspects financiers et juridiques
 
